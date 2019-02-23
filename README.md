@@ -1,0 +1,2 @@
+# Manifesto-
+Infinity Corporations 
